@@ -1,4 +1,4 @@
--># Canal Alexandre Gomiero<-
+-> # Canal Alexandre Gomiero <-
 
 ### Conteúdo complementar do canal Alexandre Gomiero no YouTube  
 [Inscreva-se para novidades](https://www.youtube.com/subscription_center?add_user=alegomiero2010)
